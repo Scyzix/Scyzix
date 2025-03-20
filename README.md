@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Scyzix
+- 👀 I’m interested in IT, Computer Science, AI, Robotic Engineering, Physics, Chemistry, Mathematics,...
+- 🌱 I’m currently learning what I am interested in
+- 📫 My email: ndphuc1004@gmail.com
+- ⚡ Fun fact: I am using a 11-year-old computer, it is about to retire soon!

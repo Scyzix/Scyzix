@@ -4,4 +4,4 @@
 - 📫 My email: ndphuc1004@gmail.com
 - 👾 I am a really weird person, paranormal
 - ⚡ Fun fact: I am using a 10-year-old computer, it is about to retire soon!
-- 💖 I LOVE HATSUNE MIKU 💖
+- 💖 KASANE TETO FOREVER!!! 💖

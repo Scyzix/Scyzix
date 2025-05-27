@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Scyzix
 - 👀 I’m interested in IT, AI, ML, Neural Network, Robotic & Electrical Engineering, Physics, Chemistry, Mathematics,...
 - 🌱 I’m currently learning Robotic Engineering and Artificial Intelligence, and a lot more soon!
+- 🤖 I'm currently building a UAV with lots of cool features. It is my first time though, so it is still very bad :/
 - 📫 My email: ndphuc1004@gmail.com
 - 👾 I am a really weird person, paranormal
 - ⚡ Fun fact: I am using a 10-year-old computer, it is about to retire soon!
